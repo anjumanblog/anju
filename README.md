@@ -1,0 +1,2 @@
+# anju
+I am  Anjuman Ara and i am a proud Govt. School Teacher from a respectable Muslim family living in Shahrasti, Chandpur, Bangladesh.  Bangladesh is a major subcontinental country when it’s about seasoned food varieties.  From my virtual outstanding vision for Bangladesh i wanted to represent Bangladeshi traditional agro-based food varieties, cultures, natural or endemic variations etc. to all over the world.
